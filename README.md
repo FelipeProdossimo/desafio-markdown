@@ -1,6 +1,6 @@
 # **FELIPE PRODOSSIMO**
 
-### Rua das Galáxias, 370 - Americana SP - 19 988131094 - felipe.profissional4@gmail.com
+### Rua das Galáxias, 370 - Americana SP - (19) 98813-1094 - felipe.profissional4@gmail.com
 ### 04/04/2003
 
 ---
